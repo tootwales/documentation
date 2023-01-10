@@ -126,7 +126,7 @@ There are plenty of good reasons and thoughtful or entertaining ways to use offe
 
 ### Direct Eye Contact
 
-This can be a disconcertingly personal invasion of a very impersonal, asymmetrical activity. Additionally, roughly one percent of the population, and therefore one percent of our membership, has Autism Spectrum Disorder, and can find direct eye contact extremely uncomfortable. Please place eye contact imagery behind a CW.
+This can be a disconcertingly personal invasion of a very impersonal, asymmetrical activity. Additionally, roughly one percent of the population, and therefore one percent of our membership, is on the Autistic Spectrum, and can find direct eye contact extremely uncomfortable. Please place eye contact imagery behind a CW.
 
 
 ### Live Sports and Events
